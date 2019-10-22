@@ -8,6 +8,7 @@
 * Dormir
 * Videojuegos
 * Escuchar música
+* Ver vídeos
 
 ## Citas favoritas
 
