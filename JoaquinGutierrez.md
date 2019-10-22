@@ -1,6 +1,6 @@
 # Joaquin Gutierrez
 
-![Foto de Joaquin](https://www.facebook.com/photo.php?fbid=1839657032800280&set=t.100003849099582&type=3&size=1536%2C2048 "Foto de Joaquin y ... ")
+![Este archivo fue hackeado por la creeper gang](https://i.pinimg.com/originals/7a/a3/0c/7aa30c0658b18c60becc10a3563360b9.png "Este archivo fue hackeado por la creeper gang")
 
 
 
