@@ -1,6 +1,6 @@
 # Sebastian Zuzunaga
 
-![No eres digno de contemplar mi magnificensia(Foto de Sebastian)](https://www.google.com/url?sa=i&source=images&cd=&ved=2ahUKEwj72O7r8K_lAhUFq1kKHY3yAAkQjRx6BAgBEAQ&url=https%3A%2F%2Fwww.pinterest.com%2Fpin%2F283867582745426906%2F&psig=AOvVaw2eWh62828qV3GwDesf4T2l&ust=1571834186034241 "Tristemente no tengo forma de conseguir una foto mia asi que esto deberia bastar.")
+![No eres digno de contemplar mi magnificensia(Foto de Sebastian)](https://i.pinimg.com/originals/7a/a3/0c/7aa30c0658b18c60becc10a3563360b9.png "Tristemente no tengo forma de conseguir una foto mia asi que esto deberia bastar.")
 
 ## Hobbies
 * Jugar videojuegos
