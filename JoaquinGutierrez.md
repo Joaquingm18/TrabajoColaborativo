@@ -9,6 +9,7 @@
 * Videojuegos
 * Fútbol
 * Comer
+* No morir
 
 ## Cita favorita
 
