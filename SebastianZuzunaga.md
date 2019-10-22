@@ -6,6 +6,7 @@
 * Jugar videojuegos
 * Respirar
 * Parpadear
+* No morir
 
 ## Si fuera presidente
 1. disolver
