@@ -11,7 +11,6 @@
 
 ## Citas favoritas
 
-> Waaah. -Waluigi
 > Bellsprout. -Bellsprout
 
 ## Si fuera presidente
